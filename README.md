@@ -1,6 +1,5 @@
 PyMultiThread
 =============
 
-.........
 A repo for my post:
-linekbaaaaaafdfsada
+http://wp.me/p4jU3J-4c
